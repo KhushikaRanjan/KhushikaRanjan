@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **kr.khushikaranjan@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1jcYqyWSL4_fy_sFis6YzczoBeZV4ithR/view?usp=sharing](https://drive.google.com/file/d/1QT29cMoy1vVX2NZ7zjxwDC5i_9RCRZuv/view?usp=sharing)](https://drive.google.com/file/d/1jcYqyWSL4_fy_sFis6YzczoBeZV4ithR/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1QT29cMoy1vVX2NZ7zjxwDC5i_9RCRZuv/view?usp=sharing)
 
 - ⚡ Fun fact **I love to learn**
 
